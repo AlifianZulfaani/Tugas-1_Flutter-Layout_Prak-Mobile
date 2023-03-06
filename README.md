@@ -1,3 +1,1 @@
-# Alifian Zulfaani
-# 123200164
-# IF-B
+# Alifian Zulfaani 123200164 IF-B
